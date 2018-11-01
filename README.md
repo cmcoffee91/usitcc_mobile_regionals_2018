@@ -1,1 +1,1 @@
-# usitcc mobile regionals 2018
+# usitcc mobile regionals 2018 competition
